@@ -1,1 +1,1 @@
-# Screenshots
+# Screenshot of the Day
